@@ -1,0 +1,1 @@
+Hey , Myself Yash Pratap singh . This is hand on 10 days phython training happen in my college by LINUXWORLD . in which we learn many projects with lot of things like , how to sit for many hours on laptops , how to manage assignments ,classes , attenedace etc at a same time 
